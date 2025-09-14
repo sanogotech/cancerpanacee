@@ -1,4 +1,34 @@
-# 🌿 **Top 70 plantes et alicaments pour freiner les “boules” (tumeurs) – Vision Afrique de l’Ouest**
+Parfait 😃 ! Je vais analyser les **100 plantes/alicaments** listés dans les 7 catégories et identifier **ceux qui apparaissent dans plus de 3 catégories** (c’est-à-dire utilisés de façon polyvalente).
+
+---
+
+# 🌿 **Plantes polyvalentes (≥4 catégories)**
+
+| Plante / Alicament                              | Catégories où elle apparaît (≥4)                                                                                         |
+| ----------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------ |
+| **Moringa / Moringa oleifera**                  | Immunité, Anti-inflammatoire, Antioxydant, Cytotoxique, Dépurative, Modulation hormonale, Protection foie (7 catégories) |
+| **Feuilles de Neem / Azadirachta indica**       | Immunité, Anti-inflammatoire, Antioxydant, Cytotoxique, Dépurative, Modulation hormonale, Protection foie (7 catégories) |
+| **Feuilles de Papaye / Carica papaya**          | Immunité, Anti-inflammatoire, Antioxydant, Cytotoxique, Dépurative, Protection foie (6 catégories)                       |
+| **Baobab / Adansonia digitata**                 | Immunité, Anti-inflammatoire, Antioxydant, Cytotoxique, Dépurative, Modulation hormonale, Protection foie (7 catégories) |
+| **Feuilles de Corossol / Annona muricata**      | Immunité, Anti-inflammatoire, Antioxydant, Cytotoxique, Dépurative, Modulation hormonale, Protection foie (7 catégories) |
+| **Hibiscus / Hibiscus sabdariffa**              | Anti-inflammatoire, Antioxydant, Dépurative, Protection foie (4 catégories)                                              |
+| **Curcuma / Curcuma longa**                     | Anti-inflammatoire, Antioxydant, Cytotoxique, Protection foie (4 catégories)                                             |
+| **Gingembre / Zingiber officinale**             | Anti-inflammatoire, Antioxydant, Cytotoxique, Immunité (4 catégories)                                                    |
+| **Griffe du diable / Harpagophytum procumbens** | Immunité, Anti-inflammatoire, Cytotoxique, Dépurative (4 catégories)                                                     |
+| **Kinkeliba / Combretum micranthum**            | Immunité, Dépurative, Modulation hormonale, Protection foie (4 catégories)                                               |
+
+---
+
+💡 **Observation** :
+
+* Ces **10 plantes** sont les plus polyvalentes et les plus utilisées dans la tradition phytothérapique africaine.
+* Elles **agissent sur plusieurs fronts** : renforcement immunitaire, anti-inflammation, antioxydant, élimination des toxines, modulation hormonale, cytotoxicité ciblée, protection hépatique.
+* Idéal pour une **formule concentrée “terrain défavorable aux boules”**.
+
+---
+
+
+# 🌿 **Top 100 plantes et alicaments pour freiner les “boules” (tumeurs) – Vision Afrique de l’Ouest**
 
 ---
 
