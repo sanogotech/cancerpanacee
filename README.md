@@ -3,6 +3,9 @@
 # 🔒🧬 **Prison biologique : comment le système immunitaire enferme les cellules cancéreuses en boule (capsule fibreuse / nodule encapsulé)**
 
 ---
+- Tiktok :   longeviteextreme
+-  https://vm.tiktok.com/ZMASBqqss/
+-  Système immunitaire et cellules cancéreuses et prison des cellules cancéreuses sous forme de boule
 
 ### 1️⃣ Naissance d’une cellule rebelle 🧪
 
