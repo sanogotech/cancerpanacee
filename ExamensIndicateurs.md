@@ -1,3 +1,65 @@
+# 🔬 **Top 10 examens à faire régulièrement**
+
+1️⃣ **Bilan sanguin complet** 🩸
+
+* Hémogramme, fonction hépatique, rénale et marqueurs de l’inflammation.
+* Permet de détecter anomalies et suivi général du corps.
+
+2️⃣ **Marqueurs tumoraux spécifiques** 🧪
+
+* AFP, CEA, CA-125, PSA selon le sexe et le risque.
+* Aide à détecter certains cancers précocement.
+
+3️⃣ **Examen des seins / mammographie** 🎀
+
+* Pour les femmes, surtout à partir de 40 ans.
+* Détection précoce du cancer du sein.
+
+4️⃣ **Examen de la prostate / PSA** 🧔
+
+* Pour les hommes à partir de 50 ans (ou plus tôt si antécédents familiaux).
+
+5️⃣ **Coloscopie / test de sang occulte dans les selles** 💩
+
+* Détection précoce des polypes et cancers digestifs.
+* À partir de 45–50 ans ou selon antécédents familiaux.
+
+6️⃣ **Pap test / frottis cervical** 👩
+
+* Détection des lésions précancéreuses du col de l’utérus.
+* Tous les 3 ans (ou selon avis médical).
+
+7️⃣ **Échographie abdominale / scan / IRM** 🖥️
+
+* Surveillance foie, reins, pancréas, ovaires.
+* Détecte tumeurs internes silencieuses.
+
+8️⃣ **Contrôle de la peau / dermatoscopie** 🌞
+
+* Pour repérer grains de beauté suspects ou cancers de la peau.
+
+9️⃣ **Examen pulmonaire / radiographie ou scanner thoracique** 🌬️
+
+* Surtout pour fumeurs ou personnes exposées à la pollution.
+* Détection précoce du cancer du poumon.
+
+🔟 **Analyse hormonale et métabolique** ⚖️
+
+* Insuline, IGF-1, hormones thyroïdiennes, cortisol.
+* Terrain hormonal déséquilibré favorise certaines tumeurs.
+
+---
+
+💡 **Astuce pratique** :
+
+* Faire **bilan complet au moins 1 fois/an** selon âge et antécédents.
+* Coupler avec **mode de vie sain et alimentation anticancer** → surveillance proactive.
+
+---
+
+
+----------
+
 # 📊 **Indicateurs et métriques à suivre régulièrement**
 
 ## 1️⃣ **Hématologie**
