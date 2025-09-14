@@ -1,6 +1,4 @@
-Parfait 😃 ! Je vais analyser les **100 plantes/alicaments** listés dans les 7 catégories et identifier **ceux qui apparaissent dans plus de 3 catégories** (c’est-à-dire utilisés de façon polyvalente).
 
----
 
 # 🌿 **Plantes polyvalentes (≥4 catégories)**
 
@@ -24,6 +22,35 @@ Parfait 😃 ! Je vais analyser les **100 plantes/alicaments** listés dans les 
 * Ces **10 plantes** sont les plus polyvalentes et les plus utilisées dans la tradition phytothérapique africaine.
 * Elles **agissent sur plusieurs fronts** : renforcement immunitaire, anti-inflammation, antioxydant, élimination des toxines, modulation hormonale, cytotoxicité ciblée, protection hépatique.
 * Idéal pour une **formule concentrée “terrain défavorable aux boules”**.
+
+---
+
+# 🌿💎 **Bonus 10 plantes très complémentaires**
+
+| Plante / Alicament                              | Catégorie principale / complémentaire           |
+| ----------------------------------------------- | ----------------------------------------------- |
+| **Ail / Allium sativum**                        | Immunité, antioxydant, dépuration               |
+| **Echinacée / Echinacea purpurea**              | Immunité, stimulation lymphocytes               |
+| **Artémisia / Artemisia annua**                 | Cytotoxique, anti-inflammatoire                 |
+| **Griffe du chat / Uncaria tomentosa**          | Anti-inflammatoire, immunomodulatrice           |
+| **Fenugrec / Trigonella foenum-graecum**        | Modulation hormonale, antioxydant               |
+| **Chardon-Marie / Silybum marianum**            | Protection hépatique, dépuration                |
+| **Tamarin / Tamarindus indica**                 | Antioxydant, dépuration, anti-inflammatoire     |
+| **Ginseng africain / Tacca involucrata**        | Immunité, tonique, modulation hormonale         |
+| **Baies de Goji africaines / Lycium africanum** | Antioxydant, protection cellulaire              |
+| **Ortie / Urtica dioica**                       | Dépurative, anti-inflammatoire, soutien général |
+
+---
+
+💡 **Comment utiliser ces 20 plantes ensemble** :
+
+* **10 polyvalentes** + **10 complémentaires** = **formule 20 plantes**.
+* Préparer en **infusion ou décoction mixte** : 1–2 g de chaque plante sèche dans 500–750 ml d’eau bouillante, infuser 10–15 min, boire 1 tasse matin et soir.
+* Effet **synergique** : immunité renforcée, inflammation réduite, cytotoxicité ciblée, antioxydant, dépuration, modulation hormonale, protection du foie.
+
+---
+
+
 
 ---
 
