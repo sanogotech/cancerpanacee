@@ -174,6 +174,158 @@ Une bonne nutrition = clé pour éviter et soigner les escarres.
 * ☀️ **Exposition au soleil** 10–15 min/jour (vitamine D, circulation).
 * 🙏 Soutien psychologique : le moral influence aussi la cicatrisation.
 
+
+----
+
+Parfait 🙏 ! Je vais détailler un **Programme hebdomadaire sur 4 semaines**, avec **titres clairs + contenu pratique**.
+Il sera conçu pour un patient atteint d’un **cancer pulmonaire avancé**, **sans chimio**, avec focus sur :
+
+* prévention des **escarres**,
+* **nutrition**,
+* **plantes & tisanes**,
+* **massages & soins de peau**,
+* **exercices respiratoires doux**,
+* **repos & soutien moral**.
+
+---
+
+# 🌿🩺 Programme Intégré sur 4 Semaines
+
+*(Approche moderne + traditionnelle africaine + chinoise + naturelle)*
+
+---
+
+## 📅 **Semaine 1 – Stabiliser & Prévenir**
+
+🎯 Objectif : éviter escarres + renforcer le corps par nutrition de base.
+
+* **Matin** :
+
+  * Toilette douce + séchage complet.
+  * Massage zones de pression avec beurre de karité.
+  * Petit-déjeuner : bouillie enrichie (lait + poudre de moringa).
+  * Tisane basilic africain (respiration + immunité).
+
+* **Midi** :
+
+  * Position semi-assise.
+  * Repas : poisson grillé + légumes vapeur + riz complet.
+  * Jus carotte + gingembre (antioxydant + circulation).
+
+* **Après-midi** :
+
+  * Changement de position toutes les 2h.
+  * Exposition au soleil 10 min (vitamine D).
+  * Si fatigue → sieste 30 min.
+
+* **Soir** :
+
+  * Vérifier zones à risque → si rouge, cataplasme d’argile fine.
+  * Repas : soupe légumes + œufs durs.
+  * Tisane gingembre + citron (digestion, chaleur interne).
+
+---
+
+## 📅 **Semaine 2 – Renforcer & Énergiser**
+
+🎯 Objectif : stimuler l’immunité + améliorer circulation + début exercices respiratoires.
+
+* **Matin** :
+
+  * Massage jambes + bras avec huile de coco (circulation).
+  * Petit-déjeuner : pain complet + omelette + papaye.
+  * Tisane aloé vera + miel (hydratant, cicatrisant).
+  * 🧘 Exercice respiratoire : inspirer doucement par le nez, souffler par la bouche (5 min).
+
+* **Midi** :
+
+  * Repas : poulet braisé + patates douces + salade verte.
+  * Jus betterave + orange (fer + vitamine C).
+  * Position semi-couchée → éviter compression du dos.
+
+* **Après-midi** :
+
+  * Lecture, prières, relaxation → réduire stress.
+  * Si plaie ouverte → pansement au miel pur (changer 1x/jour).
+
+* **Soir** :
+
+  * Repas léger : lentilles + légumes sautés.
+  * Tisane curcuma + poivre noir (anti-inflammatoire puissant).
+  * Vérifier la peau → aloé vera sur zones fragiles.
+
+---
+
+## 📅 **Semaine 3 – Soutenir & Soulager**
+
+🎯 Objectif : associer nutrition thérapeutique + plantes + massages réguliers.
+
+* **Matin** :
+
+  * Toilette douce + massage avec beurre de karité.
+  * Petit-déjeuner : lait + spiruline + fruits (banane, mangue).
+  * Tisane moringa + gingembre (force + vitalité).
+  * Exercice respiratoire avec mains posées sur poitrine (améliore ventilation).
+
+* **Midi** :
+
+  * Repas : poisson en sauce + igname + légumes verts.
+  * Jus pomme + céleri + carotte (détox foie & reins).
+
+* **Après-midi** :
+
+  * Mobilisation douce des bras et jambes (5–10 min).
+  * Musique douce ou prière pour soutenir le moral.
+  * Si zone rouge → cataplasme d’argile + aloé vera.
+
+* **Soir** :
+
+  * Repas : soupe haricots rouges + légumes.
+  * Tisane basilic africain (respiration, sommeil apaisé).
+
+---
+
+## 📅 **Semaine 4 – Consolider & Maintenir**
+
+🎯 Objectif : stabiliser routine + renforcer qualité de vie.
+
+* **Matin** :
+
+  * Toilette + hydratation peau (huile de coco).
+  * Petit-déjeuner : bouillie millet + arachides + lait.
+  * Tisane ginseng + miel (énergie + récupération).
+  * Exercice respiratoire assis au bord du lit (10 min).
+
+* **Midi** :
+
+  * Repas : viande maigre (ou poisson) + manioc + sauce légumes.
+  * Jus ananas + citron + gingembre (digestion + immunité).
+
+* **Après-midi** :
+
+  * Lecture / activité douce avec la famille.
+  * Mobilisation légère (tourner les chevilles, lever bras).
+  * Plaie éventuelle → pansement miel ou aloé vera.
+
+* **Soir** :
+
+  * Repas : soupe légère + patate douce.
+  * Tisane curcuma + gingembre (anti-inflammatoire + sommeil).
+  * Prière, gratitude, relaxation.
+
+---
+
+# 🔑 Résumé
+
+✅ **Semaine 1** → Prévention escarres + nutrition de base.
+✅ **Semaine 2** → Immunité + exercices respiratoires.
+✅ **Semaine 3** → Soutien moral + cicatrisation active.
+✅ **Semaine 4** → Maintien des acquis + qualité de vie.
+
+---
+
+
+----
 ---
 
 # ✅ Exemple de Routine Quotidienne pour Prévenir les Escarres
