@@ -105,5 +105,109 @@ Une alimentation adaptée est une **arme essentielle** contre le cancer :
 👉 Ce protocole ne **guérit pas** le cancer, mais il peut **ralentir sa progression, renforcer le corps et améliorer la qualité de vie**.
 
 ---
+---
 
+# 🛏️⚕️ Prévenir les Escarres chez un Patient Alité
+
+---
+
+## 1️⃣ 🌍 Comprendre les Escarres
+
+* Les escarres apparaissent quand une zone du corps est **trop longtemps comprimée** (dos, fesses, talons, coudes).
+* Le sang ne circule plus bien → la peau meurt → apparition de plaies.
+* Facteurs aggravants :
+
+  * Faiblesse, amaigrissement, manque de protéines.
+  * Humidité (urine, sueur).
+  * Immobilité prolongée.
+
+👉 Prévention = **changer la position + protéger la peau + bien nourrir le patient**.
+
+---
+
+## 2️⃣ ⚕️ Prévention Moderne (Médicale)
+
+* 🔄 **Changement de position toutes les 2h** : dos → côté gauche → côté droit → semi-assis.
+* 🛏️ **Matelas anti-escarres** (si possible) ou matelas mousse épais + coussins.
+* 🧼 **Toilette quotidienne** avec savon doux + séchage complet.
+* 🧴 **Huiles / crèmes hydratantes médicales** (par ex. vaseline, cold cream) pour éviter la sécheresse.
+* 👨‍⚕️ Surveillance régulière : vérifier rougeurs → agir **avant** que la plaie apparaisse.
+
+---
+
+## 3️⃣ 🌿 Médecine Traditionnelle Africaine
+
+* 🪨 **Argile verte/blanche** :
+
+  * En cataplasme fin sur zone rouge → absorbe humidité, stimule cicatrisation.
+* 🍯 **Miel pur** : antiseptique, cicatrisant → en pansement sur plaie ouverte (changer 1×/jour).
+* 🌱 **Feuilles de neem ou d’aloès (aloé vera)** :
+
+  * Gel d’aloé → apaisant, hydratant, régénérateur.
+* 🥥 **Huile de coco ou beurre de karité** : pour masser zones de pression → garder peau souple.
+
+---
+
+## 4️⃣ 🧘 Médecine Traditionnelle Chinoise (MTC)
+
+* **Acupuncture** (si disponible) : améliore circulation sanguine, réduit douleurs.
+* **Massage doux autour de la zone** (jamais directement sur plaie ouverte) → stimuler Qi et sang.
+* **Herbes chinoises cicatrisantes** : *Centella asiatica (Gotu Kola)* utilisée aussi en Afrique → aide cicatrisation et élasticité de la peau.
+
+---
+
+## 5️⃣ 🥦 Alimentation & Compléments
+
+Une bonne nutrition = clé pour éviter et soigner les escarres.
+
+* 🍗 **Protéines** : poisson, œufs, viande maigre, arachides, haricots, spiruline.
+* 🥭 **Vitamines A, C, E** (mangue, papaye, carotte, orange) → régénération de la peau.
+* 🥬 **Zinc & fer** (sésame, graines de courge, moringa, foie de poulet) → cicatrisation rapide.
+* 💧 **Hydratation** : 1,5 à 2 L/jour (eau, tisanes).
+
+---
+
+## 6️⃣ 💆 Hygiène & Mobilité
+
+* 🧽 Maintenir peau **propre & sèche** (changer draps, éviter humidité).
+* 🚶 Même alité → **mobiliser bras et jambes** (mouvements passifs, massage).
+* ☀️ **Exposition au soleil** 10–15 min/jour (vitamine D, circulation).
+* 🙏 Soutien psychologique : le moral influence aussi la cicatrisation.
+
+---
+
+# ✅ Exemple de Routine Quotidienne pour Prévenir les Escarres
+
+* 🌅 **Matin** :
+
+  * Toilette + séchage complet.
+  * Massage zones de pression avec beurre de karité.
+  * Petit-déjeuner protéiné (bouillie enrichie au lait + moringa).
+
+* 🕑 **Toutes les 2h** : changer la position du patient.
+
+* 🕛 **Midi** :
+
+  * Repas équilibré (poisson + légumes + riz).
+  * Jus papaye + citron (vitamines A et C).
+
+* 🌆 **Soir** :
+
+  * Vérification zones à risque → si rouge, cataplasme d’argile fine.
+  * Si plaie ouverte → pansement au miel pur.
+  * Tisane de basilic ou gingembre pour circulation.
+
+---
+
+# 🔑 En Résumé
+
+✅ **Changer régulièrement la position du patient**.
+✅ **Hydrater et nourrir la peau** avec huiles/karité/aloé.
+✅ **Renforcer le corps par l’alimentation** riche en protéines et vitamines.
+✅ **Utiliser des remèdes naturels** : argile, miel, aloé vera.
+✅ **Surveillance quotidienne** : intervenir dès les premiers signes (rougeur).
+
+👉 Avec cette approche intégrée, on peut **éviter jusqu’à 80% des escarres** et **accélérer la guérison** quand elles apparaissent.
+
+---
 
