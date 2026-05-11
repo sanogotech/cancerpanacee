@@ -1,14 +1,14 @@
 # Cancer du Foi
 
 - https://www.facebook.com/share/v/1FTZJZRQSo/
--  Decoction de  Filantus Amarus ou la plante aux « mille maladies », Poivre long , gazon sauvage
+-  Recette 1:  Decoction de  Filantus Amarus ou la plante aux « mille maladies », Poivre long , gazon sauvage
 
 *  hyllanthus amarus (Graine-en-bas-feuille) : la plante aux « mille maladies »
 
 * Phyllanthus amarus, souvent appelée « mille maladies », est l’une des plantes les plus réputées de la pharmacopée africaine. Elle est traditionnellement utilisée pour soutenir le foie, les reins, la digestion, l’immunité et la fertilité.
 
 * https://vm.tiktok.com/ZMAvuv2RX/
- - Cancer: decoction feuilles de Corosol+ feuilles de Moringa
+ - Recette 2 Cancer: decoction feuilles de Corosol+ feuilles de Moringa
 
 # 🌿 Cancer : Recettes traditionnelles – soutien naturel (retours d’expériences)
 
