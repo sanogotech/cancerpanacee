@@ -1,3 +1,99 @@
+
+
+# 🌿 Cancer : Recettes traditionnelles – soutien naturel (retours d’expériences)
+
+🔗 Source vidéo : [https://vt.tiktok.com/ZS9c5aEAu/](https://vt.tiktok.com/ZS9c5aEAu/)
+
+## 🌱 Mélange initial partagé
+
+* Feuilles de corossol
+* Moringa
+* Graines de lin
+* Graines de chia
+* Graines de fenugrec
+* Feuilles et graines de courge
+* Graines de nigelle
+* Écorce / peau d’orange
+* Ail
+* Oignon rouge cru
+* Chou violet
+* Argile verte
+* Petit cola
+* Feuilles de goyave
+* Fruits et graines de corossol
+* Aubergine sauvage
+* Fruits et feuilles de noni
+
+---
+
+## 🌿 + 10 plantes complémentaires (tradition Afrique & tropiques)
+
+* Artemisia (armoise africaine)
+* Feuilles de papayer
+* Kinkeliba (Combretum micranthum)
+* Neem (margousier)
+* Hibiscus sabdariffa (bissap feuilles/fleurs)
+* Gingembre frais
+* Curcuma racine
+* Basilic africain (Ocimum gratissimum)
+* Vernonia amygdalina (feuilles amères)
+* Papaye (graines + feuilles)
+
+---
+
+## 🧘🏾‍♂️ Hygiène de vie associée (très important en soutien global)
+
+### 🍵 1. Jeûne doux / contrôle alimentaire
+
+* Jeûne intermittent léger (12h à 16h)
+* Réduction du sucre raffiné
+* Réduction des aliments ultra-transformés
+* Hydratation abondante (eau, tisanes)
+
+---
+
+### 🧠 2. Anti-stress / équilibre émotionnel
+
+* Prière / méditation / respiration lente
+* Réduction des sources de stress chronique
+* Sommeil régulier (7–8h)
+* Marche quotidienne en nature
+
+---
+
+### 🛁 3. Bains thérapeutiques (traditionnels)
+
+* Bain de feuilles de goyave
+* Bain de neem
+* Bain de basilic + citronnelle
+* Bain d’argile diluée (selon tolérance)
+
+👉 Objectif : détente, purification, circulation
+
+---
+
+### 💆🏾‍♂️ 4. Massage & circulation
+
+* Massage à l’huile de coco ou karité
+* Massage doux abdominal et lombaire
+* Auto-massage lymphatique léger
+* Étirements quotidiens
+
+---
+
+## 🔁 Synthèse globale
+
+Ces approches combinent :
+
+* 🌿 Plantes médicinales traditionnelles
+* 🧘🏾‍♂️ Hygiène de vie (stress, sommeil, jeûne)
+* 🛁 Purification (bains)
+* 💆🏾‍♂️ Circulation et détente (massage)
+
+---
+
+
+
 # 🌿💊 **Panacée 10 éléments “anti-boules” (tumeurs / nodules)**
 
 ### 1️⃣ **Nigelle / Nigella sativa (graines)**
