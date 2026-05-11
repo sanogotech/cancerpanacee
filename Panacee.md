@@ -7,6 +7,9 @@
 
 * Phyllanthus amarus, souvent appelée « mille maladies », est l’une des plantes les plus réputées de la pharmacopée africaine. Elle est traditionnellement utilisée pour soutenir le foie, les reins, la digestion, l’immunité et la fertilité.
 
+* https://vm.tiktok.com/ZMAvuv2RX/
+ - Cancer: decoction feuilles de Corosol+ feuilles de Moringa
+
 # 🌿 Cancer : Recettes traditionnelles – soutien naturel (retours d’expériences)
 
 🔗 Source vidéo : [https://vt.tiktok.com/ZS9c5aEAu/](https://vt.tiktok.com/ZS9c5aEAu/)
