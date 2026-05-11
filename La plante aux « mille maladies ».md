@@ -78,15 +78,73 @@ Phyllanthus amarus, souvent appelée **« mille maladies »**, est l’une des p
 
 ---
 
-# 🎯 Associations Synergiques
 
-| Objectif  | Association traditionnelle      |
-| --------- | ------------------------------- |
-| Foie      | Kinkeliba + citron              |
-| Reins     | Queue de cerise + orthosiphon   |
-| Paludisme | Neem + citronnelle              |
-| Fertilité | Moringa + spiruline             |
-| Glycémie  | Cannelle + feuilles de manguier |
+# 🌿 Associations Synergiques (version renforcée + “mille maladies”)
+
+| Objectif                      | Association traditionnelle renforcée                                               |
+| ----------------------------- | ---------------------------------------------------------------------------------- |
+| 🧹 Foie                       | **Mille maladies (Phyllanthus amarus)** + Kinkeliba + Citron + Gingembre + Curcuma |
+| 🧼 Reins                      | **Mille maladies** + Queue de cerise + Orthosiphon + Persil + Gingembre            |
+| 🦟 Paludisme / infections     | **Mille maladies** + Neem + Citronnelle + Ail + Gingembre                          |
+| 👶 Fertilité                  | **Mille maladies** + Moringa + Spiruline + Gingembre + Maca                        |
+| 🍬 Glycémie                   | **Mille maladies** + Cannelle + Feuilles de manguier + Aloe vera + Curcuma         |
+| ❤️ Hypertension               | **Mille maladies** + Hibiscus + Ail + Citron + Gingembre                           |
+| 😌 Stress / sommeil           | **Mille maladies** + Basilic sacré + Citronnelle + Moringa + Camomille             |
+| 🍽️ Digestion / ventre        | **Mille maladies** + Gingembre + Menthe + Fenouil + Citron                         |
+| 🩸 Sang / circulation         | **Mille maladies** + Ortie + Bissap (Hibiscus) + Ail + Curcuma                     |
+| 🧴 Peau / infections cutanées | **Mille maladies** + Neem + Aloe vera + Curcuma + Citron                           |
+
+---
+
+# 🌱 Logique des ajouts (important)
+
+## 🔹 1. Les 2 ingrédients ajoutés partout
+
+* **Gingembre** → circulation, anti-inflammatoire, digestion
+* **Curcuma** → détox, foie, anti-inflammatoire puissant
+
+👉 Ils servent de **“boosteurs universels”** dans presque toutes les synergies.
+
+---
+
+## 🔹 2. Rôle du “mille maladies”
+
+Phyllanthus amarus
+👉 agit comme **plante pivot de nettoyage global (foie + sang + reins)**
+
+---
+
+# 🌿 Plantes complémentaires utilisées
+
+* Kinkeliba
+* Neem
+* Moringa
+* Hibiscus
+* Aloe vera
+* Cannelle
+
+---
+
+# 📌 Résumé simple (logique globale)
+
+👉 Cette version fonctionne comme une **stratégie en 3 niveaux** :
+
+1. 🧪 **Mille maladies** = nettoyage général (foie + sang + reins)
+2. 🌿 **Plantes africaines principales** = cible maladie
+3. 🔥 **Gingembre + curcuma** = activation / amplification
+
+---
+
+# ⚠️ Note importante
+
+Ces combinaisons sont **traditionnelles et informatives**.
+Elles ne remplacent pas un diagnostic médical, surtout en cas de :
+
+* hypertension sévère
+* diabète sous traitement
+* insuffisance rénale ou hépatique
+
+
 
 ---
 
