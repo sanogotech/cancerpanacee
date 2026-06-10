@@ -16,6 +16,15 @@
 - https://www.facebook.com/share/r/18fbwknK64/
 *  Decoction 10 feuilles de Corosol pendant 10mn et infusion pendant 20 mn +;sel gris deux grains boire matin et soir pendant 21 jours contre diabète et cancer
 
+## Neem + Kinkeliba
+
+- https://www.facebook.com/share/v/1E9oVZckQm/
+-  Neem + Kinkeliba : Arbre Santé de 40 maladies ?
+
+## Cancer macération 24h clou de girofle, cannelle et Anis étoilés
+* https://www.facebook.com/share/r/1AjNsG1gZa/
+* Cancer macération 24h clou de girofle, cannelle et Anis étoilés
+
 # 🌿 Cancer : Recettes traditionnelles – soutien naturel (retours d’expériences)
 
 🔗 Source vidéo : [https://vt.tiktok.com/ZS9c5aEAu/](https://vt.tiktok.com/ZS9c5aEAu/)
