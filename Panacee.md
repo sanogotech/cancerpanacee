@@ -10,6 +10,12 @@
 * https://vm.tiktok.com/ZMAvuv2RX/
  - Recette 2 Cancer: decoction feuilles de Corosol+ feuilles de Moringa
 
+
+## Decoction 10 feuilles de Corosol 
+
+- https://www.facebook.com/share/r/18fbwknK64/
+*  Decoction 10 feuilles de Corosol pendant 10mn et infusion pendant 20 mn +;sel gris deux grains boire matin et soir pendant 21 jours contre diabète et cancer
+
 # 🌿 Cancer : Recettes traditionnelles – soutien naturel (retours d’expériences)
 
 🔗 Source vidéo : [https://vt.tiktok.com/ZS9c5aEAu/](https://vt.tiktok.com/ZS9c5aEAu/)
